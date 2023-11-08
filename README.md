@@ -1,4 +1,4 @@
-## Hallo! 👋
+## Hey!✌️
 
 👨‍🎓 Ich bin ein Student (5 Sem.) der Elektro- und Informationstechnik an der Hochschule Düsseldorf, spezialisiert auf Informationstechnik.  
 🔍 Meine Faszination für KI ist groß, und ich strebe danach, in diesem aufregenden Bereich Erfolge zu erzielen.
